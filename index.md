@@ -1,2 +1,4 @@
-## GalaxxyAfonso Website
-Temporary closed.
+## GalaxxyAfonso 
+
+[TikTok](https://tiktok.com/@galaxxyafonso)
+[Github](https://github.com/galaxxyafonso)
